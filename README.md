@@ -1,4 +1,4 @@
-# [Teleco Hogwarts](http://ricardosa.nz/2017/A(n)-(not-so)-epic-tale-of-electronic-design-copy/)
+# [Teleco Hogwarts](https://ricardosa.nz/2017/I-made-some-T-shirt-design/)
 
 
 This is a design from some time ago, made with and idea conceived even more time ago.
